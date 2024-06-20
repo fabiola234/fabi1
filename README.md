@@ -1,4 +1,4 @@
-# BEM VINDO AO MEU PERFIL
+
 Meu nome é Fabiola Woievoda.
 Estudo no Colégio Doutor Arnaldo Busato, no 2 ano do Ensino médio.
 Tenho 16 anos de idade.
